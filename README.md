@@ -1,1 +1,2 @@
 Gabriel Mortensen
+mortenga@oregonstate.edu
